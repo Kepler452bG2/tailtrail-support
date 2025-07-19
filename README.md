@@ -19,4 +19,4 @@ If you have any other questions, issues, or feedback, please don't hesitate to c
 **Support Email:** [assellyzh@gmail.com](mailto:assellyzh@gmail.com)
 
 ---
-*© 2024 TailTrail. All rights reserved.* 
+*© 2025 TailTrail. All rights reserved.* 
